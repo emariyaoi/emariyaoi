@@ -8,7 +8,7 @@ $\color{#fe94af}{\textsf{MILO / MIRAN !!!}}$
 he/him <img src="https://github.com/emariyaoi/emariyaoi/assets/163697330/d32c8bab-b6b7-44c7-be2b-b3ec40d51032" \> 17 yrs old !
 </p>
 <p align="center">
-$\color{#ffbccd}{\textsf{feel free to sit with me ! c+h is welcome!! i usually dont look at chats other than my personal tab tho so whisper me if u wanna talk to me!! :3}}$
+$\color{#ffbccd}{\textsf{feel free to sit with me ! c+h is welcome!! i usually dont look at chats other than my personal tab tho so whisper me if u wanna talk to me!! :3 SUNTURINE ENJOYERS INT WITH ME I LOVE U}}$
 </p>
 <p align="center">
 $\color{#ffc898}{\textsf{I HEART NERDS}}$ <img src="https://i.ibb.co/Vm4YT9f/IMG-5133.gif" \>
