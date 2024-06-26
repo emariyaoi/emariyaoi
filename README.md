@@ -16,7 +16,13 @@ $\color{#ffc898}{\textsf{I HEART NERDS}}$ <img src="https://i.ibb.co/Vm4YT9f/IMG
   <img src="https://github.com/emariyaoi/emariyaoi/assets/163697330/f0dba7e7-1d4f-45ec-a72a-9bb3b5bcc4dc)" />
 </p>
 <p align="center">
-i love u shtdn
+</p>
+<p align="center">
+ <img src="https://github.com/emariyaoi/emariyaoi/assets/163697330/161ae1e0-94f1-4059-aa17-01d5f067ce23" \>
+
+
+
+
 
 
  
