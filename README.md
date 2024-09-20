@@ -10,7 +10,7 @@ hi my name is $\color{#f7d109}{\textsf{milo}}$ and im so sleepy
 
 i will always welcome new friends with open arms ^_^
 
-$\color{#f7d109}{\textsf{offtab most of the time but i see all of ur whispers and i rlly appreciate them all :3}}$
+$\color{#f7d109}{\textsf{offtab most of the time (ill look at retro/straw) but i see all of ur whispers and i rlly appreciate them all :3}}$
 
 GOD PLEASE GIVE ME MORE FREETIME SO I CAN PLAY ON MY LITTLE PONY GAME PELASE PELASE PELASE!!!! I HATE BEING A STUDENT WHO HAS A PART TIME JOB!!! IM ONLY 12 YEARS OLD PLEASE LET ME DILLY DALLY AT HOME ON WEEKENDS AND NOT WORK PELASEEE!!!
 
