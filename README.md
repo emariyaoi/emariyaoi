@@ -14,7 +14,7 @@ $\color{#f7d109}{\textsf{offtab most of the time (ill look at retro/straw) but i
 
 GOD PLEASE GIVE ME MORE FREETIME SO I CAN PLAY ON MY LITTLE PONY GAME PELASE PELASE PELASE!!!! I HATE BEING A STUDENT WHO HAS A PART TIME JOB!!! IM ONLY 12 YEARS OLD PLEASE LET ME DILLY DALLY AT HOME ON WEEKENDS AND NOT WORK PELASEEE!!!
 
-[wip rentry](https://rentry.co/heavenlyfebruary) [retrospring](https://retrospring.net/@emari) [strawpage](https://q84s.straw.page/)
+[main rentry](https://rentry.co/heavenlyfebruary) [retrospring](https://retrospring.net/@emari) [strawpage](https://q84s.straw.page/)
 
 
 
