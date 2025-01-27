@@ -1,22 +1,34 @@
-<p align="center">
-<img src="https://github.com/user-attachments/assets/f9eea593-28ac-4d64-8e12-0ce9660068ea" />
-</p>
+‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ $\color{#34569c}{\textsf{Your freckles...they sort of remind me of stars.}}$
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/ac93c0ef-a0ac-4f59-a84a-d691bca3e756" />
+<img src="https://github.com/user-attachments/assets/813b0bb3-0738-4bb5-8cac-ffca7fe1e63f" />
 </p>
 
 
+‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎ ‎‎ ‎‎ ‎‎   $\color{#34569c}{\textsf{Really...? I never thought about it like that... Thanks.}}$
+
+
+
+
+ ‎ ‎
+ ‎
+ 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/52ea4ee3-e347-4c34-943a-c6a3499ecf50" />
+<img src="https://github.com/user-attachments/assets/82fd1623-f4b0-4237-8917-d711dbe8eb04" />
 </p>
 
+ ‎
+ ‎
 
 
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ [<img src="https://github.com/user-attachments/assets/61ee457d-12d1-449b-93f6-491731e449e4">](https://rentry.co/heartpendant) ‎‎ ‎[<img src="https://github.com/user-attachments/assets/94d75a1a-26a8-4b38-8a85-205261c059da">](https://heartpendant.straw.page) ‎ ‎‎[<img src="https://github.com/user-attachments/assets/dfdeee29-003d-4073-a2a3-d81944b50da8">](https://emari.atabook.org/)
+
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ [<img src="https://github.com/user-attachments/assets/c39133d1-2b3b-4df9-8a43-e2d65ecc7ab1">](https://rentry.co/heartpendant) ‎‎ ‎[<img src="https://github.com/user-attachments/assets/583e49d1-7eb6-4167-b53c-66901671803c">](https://heartpendant.straw.page) ‎ ‎‎[<img src="https://github.com/user-attachments/assets/5cdd8454-eee5-4eaa-bce4-2f60705564dd">](https://emari.atabook.org/)
+
+
 
 
 
