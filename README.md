@@ -2,10 +2,11 @@
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/1eaea6df-3880-4e01-8187-540eaac9f5e3" />
+<img src="https://github.com/user-attachments/assets/554fbe1e-eae9-43db-a742-93c0d130c1e4" />
 </p>
 
 new theme wip hold up
+
 
 
 
