@@ -2,17 +2,8 @@
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/a41fd44d-6128-4099-acb6-1a656e810dec" />
+<img src="https://github.com/user-attachments/assets/78bdfc2d-6154-4823-b556-7563f94c5a37" />
 </p>
-
-
-
-
-
-
-
-
-
 
 
 
