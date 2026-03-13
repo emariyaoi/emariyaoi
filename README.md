@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-please make me myynx ranked smp pony i will be forever in debt to you if u do >_<
+ranked smp everyone invest into ranked smp right NEOW
 </p>
 
 
