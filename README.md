@@ -16,7 +16,7 @@ ${\textsf{\color{#ffe592} ah-ha}}$ ${\textsf{\color{#6de3ff}yeah,}}$ ${\textsf{\
 ‎ ‎
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=emariyaoi&style=plastic&color=yellow&label=MEMORIES&base=11337&abbreviated=true" alt="GitHub Profile Views" />
+ <img src="https://file.garden/ae-FUgfELjoYT3k-/29382fce.gif" /> ‎ ‎ ‎ ‎ ‎  <img src="https://komarev.com/ghpvc/?username=emariyaoi&style=plastic&color=yellow&label=MEMORIES&base=11337&abbreviated=true" alt="GitHub Profile Views" /> ‎ ‎ ‎ ‎ ‎   <img src="https://file.garden/ae-FUgfELjoYT3k-/2a141261.gif" />
 </p>
 
 
