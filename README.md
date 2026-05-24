@@ -7,8 +7,8 @@ ${\textsf{\color{#ffe592} ah-ha}}$ ${\textsf{\color{#6de3ff}yeah,}}$ ${\textsf{\
 <img src="https://github.com/user-attachments/assets/3c11e3a8-767f-4ef1-a2eb-2cb438805e57" />
 </p>
 
-<p align="center">
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://github.com/user-attachments/assets/7acaca20-dbbc-4d31-a86a-c6a7d2a1f2c8" /> ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎  <img src="https://github.com/user-attachments/assets/5b19c672-618c-4612-84f2-a1ba582f8604" /> ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎  <img src="https://github.com/user-attachments/assets/47f939ba-62ff-4899-9d5f-51b9d7ac654b" /> 
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [![rentry](https://file.garden/ae-FUgfELjoYT3k-/ezgif-1b756ffe645c66e0.png)](https://rentry.co/neapolitans) ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎  [![ata](https://file.garden/ae-FUgfELjoYT3k-/ezgif-10cb2085da723354.png)](https://emari.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎  [![rentry2](https://file.garden/ae-FUgfELjoYT3k-/ezgif-1a890c0ccf0940f4.png)](https://rentry.co/myynx) 
 
 
 
@@ -18,7 +18,7 @@ ${\textsf{\color{#ffe592} ah-ha}}$ ${\textsf{\color{#6de3ff}yeah,}}$ ${\textsf{\
 
 
 
-</p>
+
 
 
 
