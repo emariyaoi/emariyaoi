@@ -36,7 +36,7 @@ ${\textsf{\color{#5ab6d0} NOT a}}$ ${\textsf{\color{#73cde7} typology pro (esp s
 ${\textsf{\color{#8bdff7} links below Ok?}}$
 </br>
 </br>
-<a href="https://rentry.co/coldified">main rentry</a>  ‎  ‎  ‎   <a href="https://emari.atabook.org/">atabook</a>   ‎  ‎  ‎   <a href="https://straw.page">strawpage (when i make one)</a>
+<a href="https://rentry.co/coldified">main rentry</a>  ‎  ‎  ‎   <a href="https://emari.atabook.org/">atabook</a>   ‎  ‎  ‎   <a href="https://pronouns.cc/@emari">prns.cc</a>
 </br>
 </br>
 still a wip.
