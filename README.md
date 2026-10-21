@@ -41,4 +41,4 @@ ${\textsf{\color{#8bdff7} links below Ok?}}$
 </br>
 still a wip.
 </p>
-<img src="https://file.garden/ae-FUgfELjoYT3k-/ezgif-81b82456768e744b.png" width="350" align="right" >
+<img src="https://file.garden/ae-FUgfELjoYT3k-/ezgif-81b82456768e744b.png" width="330" align="right" >
