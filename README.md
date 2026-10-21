@@ -27,8 +27,6 @@ hi
 </br>
 </br>
 </br>
-</br>
-</br>
 <img src="https://file.garden/ae-FUgfELjoYT3k-/ezgif-1c4b8e3645b8d29a.jpg" width="600" >
 </br>
 </br>
