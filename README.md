@@ -59,3 +59,6 @@ ${\textsf{\color{#a9ecff}see me at docks most of the time}}$
 </br>
 </br>
 ${\textsf{\color{#c9f3ff}typically i prefer to talk in pub chat over whispers}}$
+</br>
+</br>
+${\textsf{\color{#dff8ff}⛄︎}}$
