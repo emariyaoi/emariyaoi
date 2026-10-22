@@ -32,6 +32,7 @@ ${\textsf{\color{#5ab6d0} NOT a}}$ ${\textsf{\color{#73cde7} typology pro (esp s
 </br>
 </br>
 </p>
+<img src="https://file.garden/ae-FUgfELjoYT3k-/ezgif-81b82456768e744b.png" width="330" align="right" >
 <p align="center">
 ${\textsf{\color{#8bdff7} links below Ok?}}$
 </br>
@@ -39,6 +40,22 @@ ${\textsf{\color{#8bdff7} links below Ok?}}$
 <a href="https://rentry.co/coldified">main rentry</a>  ‎  ‎  ‎   <a href="https://emari.atabook.org/">atabook</a>   ‎  ‎  ‎   <a href="https://pronouns.cc/@emari">prns.cc</a>
 </br>
 </br>
-still a wip.
-</p>
-<img src="https://file.garden/ae-FUgfELjoYT3k-/ezgif-81b82456768e744b.png" width="330" align="right" >
+${\textsf{\color{#5ab6d0} pt info:}}$
+</br>
+${\textsf{\color{#70d1ec} semi-offtab most of the time! if i dont respond to a msg feel free to whisper me!}}$
+</br>
+</br>
+${\textsf{\color{#7ae0fc} c+h is always free, stranger or not!}}$
+${\textsf{\color{#7ae0fc} just be aware that i may disappear cuz i go on walks sometimes :-)}}$
+</br>
+</br>
+${\textsf{\color{#88e5ff} ngl if ur in my whispers begging for t4 im gonna either ignore or hit u with a 24h}}$
+${\textsf{\color{#88e5ff} hide oopsies! friends/mutual friends are free to borrow my supporter any time}}$
+</br>
+</br>
+${\textsf{\color{#a9ecff} as of right now (as im very on and off) i am active in regiments!}}$
+${\textsf{\color{#a9ecff}i love docks and i love the regi community! you will}}$
+${\textsf{\color{#a9ecff}see me at docks most of the time}}$
+</br>
+</br>
+<img src="https://komarev.com/ghpvc/?username=emariyaoi&style=plastic&color=7ae0fc&label=what seed type is this?&base=11337&abbreviated=true" alt="GitHub Profile Views">
