@@ -58,4 +58,4 @@ ${\textsf{\color{#a9ecff}i love docks and i love the regi community! you will}}$
 ${\textsf{\color{#a9ecff}see me at docks most of the time}}$
 </br>
 </br>
-<img src="https://komarev.com/ghpvc/?username=emariyaoi&style=plastic&color=7ae0fc&label=what seed type is this?&base=11337&abbreviated=true" alt="GitHub Profile Views">
+${\textsf{\color{#c9f3ff}typically i prefer to talk in pub chat over whispers}}$
