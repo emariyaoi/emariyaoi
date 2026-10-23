@@ -50,8 +50,8 @@ ${\textsf{\color{#7ae0fc} just be aware that i may disappear cuz i go on walks s
 </br>
 </br>
 ${\textsf{\color{#88e5ff} ngl if ur in my whispers begging for t4}}$
-${\textsf{\color{#88e5ff} im gonna either ignore or hit u with a 24h}}$
-${\textsf{\color{#88e5ff} hide oopsies! friends/mutual friends are free to borrow my supporter any time}}$
+${\textsf{\color{#88e5ff} im gonna either ignore or hit u with a 24h hide oopsies! }}$
+${\textsf{\color{#88e5ff} friends/mutual friends are free to borrow my supporter any time}}$
 </br>
 </br>
 ${\textsf{\color{#a9ecff} as of right now (as im very on and off) i am active in regiments!}}$
