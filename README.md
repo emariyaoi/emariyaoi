@@ -49,7 +49,8 @@ ${\textsf{\color{#7ae0fc} c+h is always free, stranger or not!}}$
 ${\textsf{\color{#7ae0fc} just be aware that i may disappear cuz i go on walks sometimes :-)}}$
 </br>
 </br>
-${\textsf{\color{#88e5ff} ngl if ur in my whispers begging for t4 im gonna either ignore or hit u with a 24h}}$
+${\textsf{\color{#88e5ff} ngl if ur in my whispers begging for t4}}$
+${\textsf{\color{#88e5ff} im gonna either ignore or hit u with a 24h}}$
 ${\textsf{\color{#88e5ff} hide oopsies! friends/mutual friends are free to borrow my supporter any time}}$
 </br>
 </br>
