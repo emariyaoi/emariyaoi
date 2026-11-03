@@ -62,4 +62,4 @@ ${\textsf{\color{#a9ecff}see me at docks most of the time}}$
 ${\textsf{\color{#c9f3ff}typically i prefer to talk in pub chat over whispers}}$
 </br>
 </br>
-${\textsf{\color{#dff8ff}⛄︎}}$
+<img src="https://komarev.com/ghpvc/?username=emariyaoi&style=plastic&color=4bd4fd&label=what seed type is this?&base=11337&abbreviated=true" alt="GitHub Profile Views"/>
