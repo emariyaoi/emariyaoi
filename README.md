@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/ae-FUgfELjoYT3k-/suzie" width="500" align="left" > <img src="https://komarev.com/ghpvc/?username=emariyaoi&style=flat&color=ff9e88&label=doodles encountered&base=11337&abbreviated=true" alt="GitHub Profile Views"/>
+<img src="https://file.garden/ae-FUgfELjoYT3k-/suzie" width="500" align="left" > <img src="https://komarev.com/ghpvc/?username=emariyaoi&style=flat&color=e0c38f&label=doodles encountered&base=11337&abbreviated=true" alt="GitHub Profile Views"/>
 </br>
 </br>
 ${\textsf{\color{#ffda99} milo}}$ ‎  ‎  ‎ ${\textsf{\color{#ffda99} cold}}$ ‎  ‎   ‎‎ ${\textsf{\color{#ffda99} miran}}$
