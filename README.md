@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://file.garden/ae-FUgfELjoYT3k-/suzie" width="500" align="left" >
-</br>
+<img src="https://komarev.com/ghpvc/?username=emariyaoi&style=plastic&color=ff9e88&label=doodles encountered&base=11337&abbreviated=true" alt="GitHub Profile Views"/>
 </br>
 ${\textsf{\color{#ffda99} milo}}$ ‎  ‎  ‎ ${\textsf{\color{#ffda99} cold}}$ ‎  ‎   ‎‎ ${\textsf{\color{#ffda99} miran}}$
 </br>
